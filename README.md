@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @VoidGamingRED
-- 👀 I’m interested in Roblox, Minecraft, and Youtube.
-- 🌱 I’m currently learning Luau and Javascript
-- 📫 You can reach me on Roblox (VoidGamingRED) or Youtube (@VoidGamingRED Void Gaming).
+- 👀 I’m interested in Incredibox Mods, YouTube, and Roblox!
+- 🌱 I'm a 13-year-old who is also cool!
+- 📫 You can message me on Youtube (@VoidGamingRED) in a post or a comment!
+- 🎮 You can play my Incredibox Mods on my Github Profile!
